@@ -1,4 +1,4 @@
-# SUPERINTELLIGENZ-EMIL
+# SUPERINTELLIGENZ-EMiL
 
 http://superintelligenz-emil.de
 http://superintelligenz-emil.eu
