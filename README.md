@@ -5,6 +5,7 @@ https://youtu.be/XRYOZwjKUBI?si=7SNKvSJWPS13OGLy
 http://superintelligenz-emil.de
 http://superintelligenz-emil.eu
 http://superintelligenz-emil.com
+https://youtube.com/shorts/FOoQ-z1BZAk?si=wf-hOJfZ3fMqj9lt
 
 Web-Assembly Module für das Redaktionssystem Kompendia.net zum Betrieb der Superintelligenz EMiL.
 
