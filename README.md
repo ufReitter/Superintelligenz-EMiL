@@ -1,6 +1,7 @@
 # SUPERINTELLIGENZ-EMiL
 
 https://youtube.com/shorts/DuhRkd_RkdE?si=YnfIsCk6ITBR2A8D
+https://youtu.be/XRYOZwjKUBI?si=7SNKvSJWPS13OGLy
 http://superintelligenz-emil.de
 http://superintelligenz-emil.eu
 http://superintelligenz-emil.com
