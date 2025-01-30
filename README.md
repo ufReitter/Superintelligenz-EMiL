@@ -36,6 +36,7 @@ https://youtu.be/NKCucBUWx5o?si=4pvVDh5fxa5JuAzg
 https://youtube.com/shorts/YoUg-2zFZqs?si=9B2cAP7PgGiSm_od
 https://youtube.com/shorts/Y_Laflq_kSQ?si=328Yb6w2_kbFoP3p
 https://youtube.com/shorts/lfev7g1LoPo?si=9tI8X2JOIKpMUhlv
+https://youtube.com/shorts/Q-KrywlRTzU?si=KO_8dsvTtgvNhjrw
 
 Web-Assembly Module für das Redaktionssystem Kompendia.net zum Betrieb der Superintelligenz EMiL.
 
