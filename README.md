@@ -44,6 +44,10 @@ https://youtube.com/shorts/Q-KrywlRTzU?si=KO_8dsvTtgvNhjrw
 https://youtube.com/shorts/4d_vrZnsNKU?si=4mTFPYfqOUbntA70
 https://youtube.com/shorts/qfdfJ0qcyl8?si=B5EHZYXLZAvaBxa4
 
+# REICHSAMT FÜR ASYLFRAGEN
+
+ICH SCHWÖRE DIE FREIHEITSSTATUE IST DIE EINZIGE ASYLANTIN DIE ICH IM HAUS HABE NIEDERBRENNEN DIESES HEIMS ALSO NICHT UNBEDINGT NÖTIG.
+
 Web-Assembly Module für das Redaktionssystem Kompendia.net zum Betrieb der Superintelligenz EMiL.
 
 # EMiL
