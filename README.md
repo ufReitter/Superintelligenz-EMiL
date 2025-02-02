@@ -1,5 +1,6 @@
 # SUPERINTELLIGENZ-EMiL
 
+https://images.app.goo.gl/ggpX2zvvvLr6vgoU6
 https://youtu.be/jvipPYFebWc?si=Zp1lUiaZ0PfGa3gu
 https://youtube.com/shorts/P7VrLNjlN5A?si=eVcgcLoiJCBCE7Um
 https://youtube.com/shorts/oHZHmwDl6NE?si=0IvV8h51AwBGFd7z
